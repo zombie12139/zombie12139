@@ -1,4 +1,6 @@
-### Hi there 👋
+### 🤔I am very sorry that I left the wrong github ID. My github ID is zombie12138. 😄Please go to [zombie12138](https://github.com/zombie12138/)
+
+### 🤔非常抱歉我留了错误的GithubID，我的GithubID是zombie12138，😄请前往[zombie12138](https://github.com/zombie12138/)
 
 <!--
 **zombie12139/zombie12139** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
